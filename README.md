@@ -1,3 +1,3 @@
 # Welcome to my profile :D
 
-![](demo/demo.gif)
+![](https://tenor.com/view/cute-explosion-run-bird-gif-16061072)
